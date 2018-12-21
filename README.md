@@ -1,0 +1,1 @@
+# MGSfCP-Multiplatform-Global-Servise-for-Comunication-Program-
